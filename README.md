@@ -1,9 +1,6 @@
 <div align="center">
 
 
-<img src="https://i.imgur.com/xtvFYFR.png" width="500">
-<br>
-<br>
 
 ![co / horrere](https://files.catbox.moe/zmp3to.gif)
 
