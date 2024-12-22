@@ -6,7 +6,7 @@
 
 <br>
 
-[atabook](https://bluezooka.atabook.org) ⠀⠀⠀⠀⠀⠀⠀⠀  [strawpage](https://bluezooka.straw.page)⠀
+[atabook](https://bluezooka.atabook.org) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  [strawpage](https://bluezooka.straw.page)⠀
 <br>
 <br>
 <br>
