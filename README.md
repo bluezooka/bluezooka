@@ -28,5 +28,5 @@ hey guys
 <br>
 ![](https://files.catbox.moe/yd97p2.gif)
 
- hes my favorite
+my wife fr
 </div>
