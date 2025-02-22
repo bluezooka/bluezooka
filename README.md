@@ -2,6 +2,9 @@
 <br>
 <br>
 <br>
+<div align="center">
+<strong>ANY KIND OF BATCEST DNIIIIIII YOU FREAAAAAAK</strong>
+</div>
 <br>
 <br>
 <br>
