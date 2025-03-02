@@ -1,39 +1,29 @@
-<br>
-<br>
-<br>
-<br>
+
 <div align="center">
 <strong>ANY KIND OF BATCEST DNIIIIIII YOU FREAAAAAAK</strong>
 </div>
 <br>
 <br>
-<br>
-<br>
-<br>
 <div align="center">
 
-
-
-![](https://piskel-imgstore-b.appspot.com/img/7b64392e-9a25-11ef-a571-0b01a4cf3689.gif)
-
-<br>
-
-⠀⠀[atabook](https://bluezooka.atabook.org) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  [strawpage](https://bluezooka.straw.page)⠀
-<br>
-<br>
-<br>
-<br> 
-<br>
-<br>
-<br> 
 [![this dosent work when an advertisment is playing btw bare with it](https://spotify-github-profile.kittinanx.com/api/view?uid=31hh5vkgse47murck3tfyuwtazge&cover_image=true&theme=natemoo-re&show_offline=true&background_color=4b4949&interchange=false&bar_color=2a40ea&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31hh5vkgse47murck3tfyuwtazge&redirect=true)
 <br>
 <br>
 <br>
+![](https://piskel-imgstore-b.appspot.com/img/7b64392e-9a25-11ef-a571-0b01a4cf3689.gif)
 <br>
 <br>
 <br>
+⠀⠀[atabook](https://bluezooka.atabook.org) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  [strawpage](https://bluezooka.straw.page)⠀
+<br>
+<br>
+<br>
+<br>
+<img src="https://files.catbox.moe/x1mc4g.png" height="400"></img>
 <br> 
+<br>
+me and my wife btw
+<br>
 <br>
 <br>
 <br>
@@ -45,9 +35,5 @@
 <br>
 <br>
 hey guys 
-<br>
-<br>
-![](https://files.catbox.moe/yd97p2.gif)
 
-my wife fr
 </div>
