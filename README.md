@@ -1,6 +1,6 @@
 
 <div align="center">
-<strong>ANY KIND OF BATCEST DNIIIIIII YOU FREAAAAAAK</strong>
+<strong>retheming things soon dont look.. covers your eyes</strong>
 </div>
 <br>
 <br>
@@ -19,10 +19,7 @@
 <br>
 <br>
 <br>
-<img src="https://files.catbox.moe/4xr1oc.png" height="400"></img>
-<br> 
-<br>
-me and my wife btw
+
 <br>
 <br>
 <br>
