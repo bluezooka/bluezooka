@@ -18,9 +18,16 @@
 <br>
 <br>
 <br>
+![](https://files.catbox.moe/ntwewg.png)
 <br>
 <br>
 <br>
+<br> 
+<br>
+<br>
+<br> 
+<br>
+all art by ry ([tumblr](https://www.tumblr.com/krinklefry87) / [twitter](https://x.com/krinklefry89))
 <br>
 <br>
 <br>
