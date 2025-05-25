@@ -10,7 +10,7 @@
 <br>
 <br>
 <br>
-![](https://piskel-imgstore-b.appspot.com/img/7b64392e-9a25-11ef-a571-0b01a4cf3689.gif)
+![](https://files.catbox.moe/g9pez5.png)
 <br>
 <br>
 <br>
@@ -18,14 +18,11 @@
 <br>
 <br>
 <br>
-![](https://files.catbox.moe/ntwewg.png)
+<img src="https://files.catbox.moe/gehc4n.png" height="150">
 <br>
 <br>
 <br>
-<br> 
-<br>
-<br>
-<br> 
+<br>  
 <br>
 all art by ry ([tumblr](https://www.tumblr.com/krinklefry87) / [twitter](https://x.com/krinklefry89))
 <br>
