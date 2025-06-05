@@ -24,7 +24,8 @@
 <br>
 <br>  
 <br>
-all art by ry ([tumblr](https://www.tumblr.com/krinklefry87) / [twitter](https://x.com/krinklefry89))
+chiikawa art by ry ([tumblr](https://www.tumblr.com/krinklefry87) / [twitter](https://x.com/krinklefry89))
+pfp by patko ([tumblr](https://patko0.tumblr.com/)
 <br>
 <br>
 <br>
