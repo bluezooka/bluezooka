@@ -32,7 +32,7 @@ pfp by patko ([tumblr](https://patko0.tumblr.com/))
 <br>
 <br>
 <br> 
-![](https://files.catbox.moe/38d42v.jpg)
+<img src="https://files.catbox.moe/38d42v.jpg" height="350">
 <br>
 <br>
 hey guys 
