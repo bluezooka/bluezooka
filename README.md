@@ -32,7 +32,7 @@ pfp by patko ([tumblr](https://patko0.tumblr.com/))
 <br>
 <br>
 <br> 
-![](https://media1.tenor.com/m/iIbhiy0Ej1sAAAAC/whatever-go-my-scarab-scarab.gif)
+![](https://files.catbox.moe/38d42v.jpg)
 <br>
 <br>
 hey guys 
