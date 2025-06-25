@@ -25,7 +25,7 @@
 <br>  
 <br>
 chiikawa art by ry ([tumblr](https://www.tumblr.com/krinklefry87) / [twitter](https://x.com/krinklefry89))
-pfp by nekonekoi_24 , MATCHING !
+pfp by nekonekoi_24
 <br>
 <br>
 <br>
