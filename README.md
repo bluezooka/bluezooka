@@ -1,6 +1,6 @@
 
 <div align="center">
-<strong>retheming things soon dont look.. covers your eyes</strong>
+<strong>not active rn im too busy ragebaiting my teachers</strong>
 </div>
 <br>
 <br>
