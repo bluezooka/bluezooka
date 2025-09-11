@@ -1,6 +1,8 @@
 
 <div align="center">
 <strong>not active rn im too busy ragebaiting my teachers</strong>
+<br>
+<center>links are really outdated too</center>
 </div>
 <br>
 <br>
@@ -10,7 +12,7 @@
 <br>
 <br>
 <br>
-![](https://files.catbox.moe/g9pez5.png)
+<img src="https://files.catbox.moe/7eq0dn.png" height="350">
 <br>
 <br>
 <br>
@@ -18,14 +20,12 @@
 <br>
 <br>
 <br>
-<img src="https://files.catbox.moe/gehc4n.png" height="150">
 <br>
 <br>
 <br>
 <br>  
 <br>
-chiikawa art by ry ([tumblr](https://www.tumblr.com/krinklefry87) / [twitter](https://x.com/krinklefry89))
-pfp by nekonekoi_24
+pfp art by rhy on [x](https://x.com/silly_rhy)
 <br>
 <br>
 <br>
