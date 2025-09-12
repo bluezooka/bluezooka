@@ -15,7 +15,7 @@
 <br>
 <br>
 <br>
-⠀⠀[atabook](https://bluezooka.atabook.org) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  [strawpage](https://bluezooka.straw.page)⠀
+⠀⠀[atabook](https://bluezooka.atabook.org) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  [rentry](https://rentry.co/ik-wil-je)⠀
 <br>
 <br>
 <br>
