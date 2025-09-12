@@ -1,8 +1,7 @@
 
 <div align="center">
-<strong>not active rn im too busy ragebaiting my teachers</strong>
+<strong>not very active rn im too busy ragebaiting my teachers</strong>
 <br>
-<center>links are really outdated too</center>
 </div>
 <br>
 <br>
