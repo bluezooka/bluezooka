@@ -24,7 +24,6 @@
 <br>
 <br>  
 <br>
-pfp art by rhy on [x](https://x.com/silly_rhy)
 <br>
 <br>
 <br>
