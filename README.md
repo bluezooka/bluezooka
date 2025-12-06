@@ -1,7 +1,18 @@
 
 <div align="center">
-<strong>not very active rn im too busy ragebaiting my teachers</strong>
+if i just had one wish ,
 <br>
+i'd use it if i could just
+<br>
+see⠀you⠀again⠀ ⠀⠀⠀
+<br>
+i feel so tired please⠀ 
+<br>
+let⠀me⠀rest⠀⠀⠀⠀ ⠀⠀
+<br>
+time⠀passes ,⠀⠀⠀ ⠀⠀
+<br>
+time passing  ⠀⠀⠀ ⠀⠀
 </div>
 <br>
 <br>
