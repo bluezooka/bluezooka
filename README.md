@@ -21,6 +21,9 @@ time⠀passes ,⠀⠀⠀ ⠀⠀
 [![this dosent work when an advertisment is playing btw bare with it](https://spotify-github-profile.kittinanx.com/api/view?uid=31hh5vkgse47murck3tfyuwtazge&cover_image=true&theme=natemoo-re&show_offline=true&background_color=4b4949&interchange=false&bar_color=2a40ea&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31hh5vkgse47murck3tfyuwtazge&redirect=true)
 <br>
 <br>
+freaky shippers please dont talk to me 
+<br>
+<br>
 <br>
 <img src="https://files.catbox.moe/8vfrk5.png" height="350">
 <br>
