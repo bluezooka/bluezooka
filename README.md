@@ -1,5 +1,10 @@
 
 <div align="center">
+<img src="https://files.catbox.moe/arp1gs.png" height="1000">
+  
+[![this dosent work when an advertisment is playing btw bare with it](https://spotify-github-profile.kittinanx.com/api/view?uid=31hh5vkgse47murck3tfyuwtazge&cover_image=true&theme=natemoo-re&show_offline=true&background_color=4b4949&interchange=false&bar_color=2a40ea&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31hh5vkgse47murck3tfyuwtazge&redirect=true)
+<br>
+<br>
 if i just had one wish ,
 <br>
 i'd use it if i could just
@@ -12,11 +17,9 @@ let⠀me⠀rest⠀⠀⠀⠀ ⠀⠀
 <br>
 time⠀passes ,⠀⠀⠀ ⠀⠀
 <br>
-⠀ ⠀⠀⠀time passing ⠀⠀⠀⠀  ࣪   ۫𓂅⠀    ⠀     ⠀ 
-<div align="center">
-<img src="https://files.catbox.moe/arp1gs.png" height="1000">
-  
-[![this dosent work when an advertisment is playing btw bare with it](https://spotify-github-profile.kittinanx.com/api/view?uid=31hh5vkgse47murck3tfyuwtazge&cover_image=true&theme=natemoo-re&show_offline=true&background_color=4b4949&interchange=false&bar_color=2a40ea&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31hh5vkgse47murck3tfyuwtazge&redirect=true)
+⠀ ⠀⠀time passing ⠀⠀⠀⠀  ࣪   ۫𓂅⠀    ⠀    
+<br>
+<br>
 <br>
 <br>
 freaky shippers please dont talk to me 
