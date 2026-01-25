@@ -22,15 +22,11 @@ time⠀passes ,⠀⠀⠀ ⠀⠀
 <br>
 <br>
 <br>
-freaky shippers please dont talk to me 
-<br>
-<br>
-<br>
-<br>
 [atabook](https://bluezooka.atabook.org) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  [rentry](https://rentry.co/ik-wil-je)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[strawpage](https://bluezooka.straw.page/)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[messy strawpage #2](https://kurukurukurikaesu.straw.page/)
 <br>
 <br>
 <br>
+freaky shippers please dont talk to me 
 <br>
 <br>
 i have an alt gh you might see [@weirdowombocombo](https://github.com/weirdowombocombo)
