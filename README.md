@@ -1,9 +1,6 @@
 
 <div align="center">
-<img src="https://files.catbox.moe/euc7lp.png" height="800">
-  
-[![this dosent work when an advertisment is playing btw bare with it](https://spotify-github-profile.kittinanx.com/api/view?uid=31hh5vkgse47murck3tfyuwtazge&cover_image=true&theme=natemoo-re&show_offline=true&background_color=4b4949&interchange=false&bar_color=2a40ea&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31hh5vkgse47murck3tfyuwtazge&redirect=true)
-<br>
+<img src="https://files.catbox.moe/35ee6e.png" height="800">
 <br>
 if i just had one wish ,
 <br>
@@ -22,6 +19,12 @@ time⠀passes ,⠀⠀⠀ ⠀⠀
 <br>
 <br>
 <br>
+<br>
+<br>
+  
+[![this dosent work when an advertisment is playing btw bare with it](https://spotify-github-profile.kittinanx.com/api/view?uid=31hh5vkgse47murck3tfyuwtazge&cover_image=true&theme=natemoo-re&show_offline=true&background_color=4b4949&interchange=false&bar_color=2a40ea&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31hh5vkgse47murck3tfyuwtazge&redirect=true)
+<br>
+<br>    
 [atabook](https://bluezooka.atabook.org) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  [rentry](https://rentry.co/ik-wil-je)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[strawpage](https://bluezooka.straw.page/)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[messy strawpage #2](https://kurukurukurikaesu.straw.page/)
 <br>
 <br>
