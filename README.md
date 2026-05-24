@@ -2,7 +2,7 @@
 <div align="center">
 <br>
 
-matchingg wit my #bro [@bitethebullett](https://github.com/bitethebullett) go follow my #bro
+matchingg wit my #bro [@bitethebullett](https://github.com/bitethebullett)
 
 <img src="https://files.catbox.moe/35ee6e.png" height="800">
 <br>
