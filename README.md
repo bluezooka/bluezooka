@@ -27,12 +27,16 @@ $${\color{#327e6d}౿⠀⠀.⠀⠀.}$$$${\color{#b3a64e}⠀⠀⠀⠀⠀⠀⠀⠀
 <br>
 <br>
 <br>
+<br>
+<br>
+<br>
 $${\color{#b3a64e}i⠀have⠀an⠀alt⠀gh⠀you⠀might⠀see}$$ [@weirdowombocombo](https://github.com/weirdowombocombo)
 <br>
 <br>
 <br>
 <br>
-<img src="https://files.catbox.moe/38d42v.jpg" height="350">
+<img src="https://files.catbox.moe/38d42v.jpg" height="250"> ⠀⠀⠀⠀⠀⠀ <img src="https://files.catbox.moe/ao5582.jpg" height="250">
+
 <br>
 <br>
 hey guys 
