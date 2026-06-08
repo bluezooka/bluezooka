@@ -27,7 +27,7 @@ $${\color{#327e6d}౿⠀⠀.⠀⠀.}$$$${\color{#b3a64e}⠀⠀⠀⠀⠀⠀⠀⠀
 <br>
 <br>
 <br>
-i have an alt gh you might see [@weirdowombocombo](https://github.com/weirdowombocombo)
+$${\color{#b3a64e}i⠀have⠀an⠀alt⠀gh⠀you⠀might⠀see}$$ [@weirdowombocombo](https://github.com/weirdowombocombo)
 <br>
 <br>
 <br>
