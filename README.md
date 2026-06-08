@@ -1,39 +1,31 @@
 
 <div align="center">
 <br>
-
-matchingg wit my #bro [@bitethebullett](https://github.com/bitethebullett)
-
-<img src="https://files.catbox.moe/35ee6e.png" height="800">
-<br>
-if i just had one wish ,
-<br>
-i'd use it if i could just
-<br>
-see⠀you⠀again⠀ ⠀⠀⠀
-<br>
-i feel so tired please⠀ 
-<br>
-let⠀me⠀rest⠀⠀⠀⠀ ⠀⠀
-<br>
-time⠀passes ,⠀⠀⠀ ⠀⠀
-<br>
-⠀ ⠀⠀time passing ⠀⠀⠀⠀  ࣪   ۫𓂅⠀    ⠀    
-<br>
-<br>
-<br>
-<br>
-<br>
 <br>
   
-[![this dosent work when an advertisment is playing btw bare with it](https://spotify-github-profile.kittinanx.com/api/view?uid=31hh5vkgse47murck3tfyuwtazge&cover_image=true&theme=natemoo-re&show_offline=true&background_color=4b4949&interchange=false&bar_color=2a40ea&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31hh5vkgse47murck3tfyuwtazge&redirect=true)
-<br>
-<br>    
-[atabook](https://bluezooka.atabook.org) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  [rentry](https://rentry.co/ik-wil-je)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[strawpage](https://bluezooka.straw.page/)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[messy strawpage #2](https://kurukurukurikaesu.straw.page/)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31hh5vkgse47murck3tfyuwtazge&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=true&bar_color=7d9a59&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 <br>
 <br>
+<img src="https://files.catbox.moe/zc8j3g.png" height="500">
 <br>
-freaky shippers please dont talk to me 
+
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+
+$${\color{#327e6d}౿⠀⠀.⠀⠀.}$$$${\color{#b3a64e}⠀⠀⠀⠀⠀⠀⠀⠀images⠀are⠀links⠀⠀⠀⠀⠀⠀⠀⠀}$$$${\color{#327e6d}︵⠀⠀｡⠀Ꮺ⠀˚}$$
+
+<br>   
+
+[![atabook](https://files.catbox.moe/gi4zo8.gif)](https://bluezooka.atabook.org) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  [![rentry](https://files.catbox.moe/7l1q8j.gif)](https://rentry.co/ik-wil-je)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![strawpage](https://files.catbox.moe/7h2m9s.gif)](https://bluezooka.straw.page/)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![messy strawpage #2](https://files.catbox.moe/vfimec.gif)](https://kurukurukurikaesu.straw.page/)
+<br>
+<br>
+<br>
+⠀⠀⠀⠀⠀ $${\color{#327e6d}atabook}$$ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $${\color{#598d61}rentry}$$ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $${\color{#8a9d56}strawpage}$$ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ $${\color{#b3a64e}other⠀strawpage}$$ ⠀
 <br>
 <br>
 <br>
