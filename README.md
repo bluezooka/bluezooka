@@ -6,7 +6,7 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31hh5vkgse47murck3tfyuwtazge&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=true&bar_color=7d9a59&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=15&duration=3000&pause=100&color=7D9A59&multiline=true&width=290&height=70&lines=see+you+next+time!;or+not+lol;bye!!)](https://git.io/typing-svg)
 <br>
 <br>
-<img src="https://files.catbox.moe/zc8j3g.png" height="500">
+<img src="https://files.catbox.moe/zc8j3g.png" height="400">
 <br>
 
 <br>
