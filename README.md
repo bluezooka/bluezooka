@@ -37,11 +37,12 @@ $${\color{#327e6d}ic⠀dyxamite}$$
 <br>
 <br>
 <br>
-<br>
-<br>
-<br>
+
 <img src="https://files.catbox.moe/38d42v.jpg" height="250"> ⠀⠀⠀⠀⠀⠀ <img src="https://files.catbox.moe/ao5582.jpg" height="250">
 
+<br>
+<br>
+<br>
 <br>
 <br>
 hey guys 
